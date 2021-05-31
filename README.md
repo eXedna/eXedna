@@ -1,2 +1,2 @@
-## ⚡ https://t.me/exedna
-## 🔥 https://GitHub.com/radolyn
+## ⚡https://t.me/exedna
+## 🔥https://GitHub.com/radolyn
