@@ -1,1 +1,1 @@
-## ⚡ (My telegram)[https://t.me/exedna]
+## ⚡ (https://t.me/exedna)[Tg]
