@@ -1,1 +1,2 @@
-## ⚡ (https://t.me/exedna)[Tg]
+## ⚡ https://t.me/exedna
+## 🔥 https://GitHub.com/radolyn
